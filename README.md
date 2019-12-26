@@ -72,3 +72,9 @@ mình chỉ xem anime vài tập r bỏ, thi thoảng xem lại manga
 
 35. hunterxhunter
 
+36. toradora
+
+37. Kiminonawa
+
+38. 
+
