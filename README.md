@@ -47,3 +47,28 @@ mình chỉ xem anime vài tập r bỏ, thi thoảng xem lại manga
 22. Chào mừng đến với lớp học biết tuốt - anime hay, cuốn , mà hình như k ra ss2 thì pải :((.
 
 23. Mikakunin de Shinkoukei - Bộ này nhẹ nhàng, hay, mà mình cảm giác nội dung có thể phát triển hơn nữa ??
+
+24. Bungou Stray Dogs
+
+25. Akame ga Kill!
+
+26. Kenja no Mago
+
+27. Gunjou no Magmel
+
+28. attack on titan
+
+29. death note,
+
+30. Charlotte
+
+31. inazuma eleven
+
+32. Kuroko No Basket
+
+33.Mahouka Koukou no Rettousei
+
+34. nisekoi.
+
+35. hunterxhunter
+
