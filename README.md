@@ -46,4 +46,4 @@ mình chỉ xem anime vài tập r bỏ, thi thoảng xem lại manga
 
 22. Chào mừng đến với lớp học biết tuốt - anime hay, cuốn , mà hình như k ra ss2 thì pải :((.
 
-23. 
+23. Mikakunin de Shinkoukei - Bộ này nhẹ nhàng, hay, mà mình cảm giác nội dung có thể phát triển hơn nữa ??
