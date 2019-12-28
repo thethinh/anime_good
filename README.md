@@ -76,5 +76,6 @@ mình chỉ xem anime vài tập r bỏ, thi thoảng xem lại manga
 
 37. Kiminonawa
 
-38. 
+38. ao haru ride - bộ này xem anime xong đọc nốt truyện :)), cuốn vãi
 
+40. Koutetsujou no Kabaneri - hay :D
