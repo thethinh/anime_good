@@ -85,3 +85,25 @@ mình chỉ xem anime vài tập r bỏ, thi thoảng xem lại manga
 42. Nhà có 5 nàng dâu - bộ này lúc đầu thì hay mà càng về sau càng chán, kéo dài quá cũng mất tính hay
 
 43. Mikakunin De Shinkoukei
+
+44. Bokutachi Wa Benkyou Ga Dekinai - bộ này cũng vậy, càng về sau càng chán
+
+45. Saiki Kusuo no Ψ-nan
+
+46. vinland saga
+
+47. enen no shouboutai
+
+48. kiminonawa
+
+49. Dáng hình thanh âm
+
+50. 5cm/s - xem được 1 thời gian mới bị ám ảnh @@
+
+51. Karakuri Circus
+
+52. fairy tail - bộ này hay được mina giới thiệu mà mình xem cảm thấy không hợp với mình lắm, nhưng cứ cho vào đây
+vì nó là 1 trong những bộ kinh điển
+
+53. dororo- anime nói về thằng bé đi tìm lại bộ phận cơ thể bị mất, chuyển thể từ manga khá cũ.
+
