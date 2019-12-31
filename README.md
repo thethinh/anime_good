@@ -83,3 +83,5 @@ mình chỉ xem anime vài tập r bỏ, thi thoảng xem lại manga
 41. Sousei no Onmyouji
 
 42. Nhà có 5 nàng dâu - bộ này lúc đầu thì hay mà càng về sau càng chán, kéo dài quá cũng mất tính hay
+
+43. Mikakunin De Shinkoukei
