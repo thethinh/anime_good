@@ -107,3 +107,5 @@ vì nó là 1 trong những bộ kinh điển
 
 53. dororo- anime nói về thằng bé đi tìm lại bộ phận cơ thể bị mất, chuyển thể từ manga khá cũ.
 
+54. tate-no-yuusha-no-nariagari - sự trỗi dậy của anh hùng khiên
+
