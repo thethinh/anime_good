@@ -109,3 +109,8 @@ vì nó là 1 trong những bộ kinh điển
 
 54. tate-no-yuusha-no-nariagari - sự trỗi dậy của anh hùng khiên
 
+55. Kengan Ashura
+
+56. Giant Killing
+
+57. Tensei Shitara Slime Datta Ken
