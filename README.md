@@ -114,3 +114,5 @@ vì nó là 1 trong những bộ kinh điển
 56. Giant Killing
 
 57. Tensei Shitara Slime Datta Ken
+
+58. Golden time
