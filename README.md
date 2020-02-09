@@ -116,3 +116,5 @@ vì nó là 1 trong những bộ kinh điển
 57. Tensei Shitara Slime Datta Ken
 
 58. Golden time
+
+59. Fullmetal alchemist - Bộ này hay, có chiều sâu
