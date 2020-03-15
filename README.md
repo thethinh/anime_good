@@ -119,7 +119,11 @@ vì nó là 1 trong những bộ kinh điển
 
 59. Fullmetal alchemist - Bộ này hay, có chiều sâu
 
-60. magi
+60. magi ( 2 phần )
 
 61. Kí sinh thú (parastyte): bộ này khá nổi :v, xem cuốn.
+
+62. Prince of tennis ( bộ này hay ngang bộ bóng chuyền hy.. j đó mỗi tội art hơi cũ xíu)
+
+
 
