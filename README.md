@@ -125,5 +125,7 @@ vì nó là 1 trong những bộ kinh điển
 
 62. Prince of tennis ( bộ này hay ngang bộ bóng chuyền hy.. j đó mỗi tội art hơi cũ xíu)
 
+63. Nagi no asukara 
+
 
 
