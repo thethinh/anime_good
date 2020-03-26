@@ -127,5 +127,7 @@ vì nó là 1 trong những bộ kinh điển
 
 63. Nagi no asukara 
 
+64. akatsuki-no-yona - Công chúa bình minh 
+
 
 
