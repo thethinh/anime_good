@@ -129,5 +129,7 @@ vì nó là 1 trong những bộ kinh điển
 
 64. akatsuki-no-yona - Công chúa bình minh 
 
+65. Diamond no ace - bộ về bóng chày
+
 
 
