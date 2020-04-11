@@ -131,5 +131,8 @@ vì nó là 1 trong những bộ kinh điển
 
 65. Diamond no ace - bộ về bóng chày
 
+66. Kaze no Stigma - bộ này hay, main bá, mỗi tội art hơi cũ xíu
+
+
 
 
