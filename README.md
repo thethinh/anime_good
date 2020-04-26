@@ -133,6 +133,8 @@ vì nó là 1 trong những bộ kinh điển
 
 66. Kaze no Stigma - bộ này hay, main bá, mỗi tội art hơi cũ xíu
 
+67. Gyakkyou Burai Kaiji - Bộ này về thanh niên thích mạo hiểm chuyên gia chơi cờ bạc, bộ này hay, kịch tính, mới ra p3 nhưng mình chưa xem
+
 
 
 
