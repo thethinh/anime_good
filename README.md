@@ -135,6 +135,7 @@ vì nó là 1 trong những bộ kinh điển
 
 67. Gyakkyou Burai Kaiji - Bộ này về thanh niên thích mạo hiểm chuyên gia chơi cờ bạc, bộ này hay, kịch tính, mới ra p3 nhưng mình chưa xem
 
+68. Ao No Exorcist - Bộ này hay nhưng drop r :((
 
 
 
